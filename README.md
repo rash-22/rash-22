@@ -7,7 +7,7 @@
 
 <p align="left"> <a href="https://twitter.com/rashmisahani5" target="blank"><img src="https://img.shields.io/twitter/follow/rashmisahani5?logo=twitter&style=for-the-badge" alt="rashmisahani5" /></a> </p>
 
-- 🌱 I’m currently learning **.**
+- 🌱 I’m addicted to learning and growing everyday 
 
 - 📫 How to reach me **rashmisahani11600@gmail.com**
 
